@@ -1,0 +1,2 @@
+# seotech
+setech  ikkinchi loyiha
